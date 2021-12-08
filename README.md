@@ -1,2 +1,3 @@
-# readme-rep
-about Natalie G
+# readme
+
+A story of my life. 
