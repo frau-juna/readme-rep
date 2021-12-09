@@ -44,6 +44,9 @@ Nice to see you on my profile :smiley_cat:
 - :ru: 
 - :uk: 
 - :de: 
+
+:four: last but not least
+- the second part of my nickname came with me from Russia, the other part was added in Germany. So the nickname is already 21 years old😅🙈
 <!--
 **frau_juna/frau_juna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
