@@ -11,39 +11,16 @@ Nice to see you on my profile :smiley_cat:
 ## ⚡ Fun facts about me:
 
 :one: i (think, therefore i) am :point_up:
-- :female_sign:
-- :scorpius: 
-- :dancer:
-- :princess: 
-- :detective:
-- 👩‍💻
+- :female_sign::scorpius::dancer::princess::detective:👩‍💻
 
 :two: I like 
-- :dog: 
-- 🌈 
-- 🌞 
-- 🏖️ 
-- 🌊 
-- :mount_fuji:
-- :snowman:
-- :it:
-- :wine_glass:
-- :beer:
-- 💻 
-- 🎹 
-- :notes:
-- :books:
-- :nail_care:
-- 💃 
-- 🥾 
-- 🚲 
-- 🎳 
-- 🌆 
+- to meet new, interesting people
+- read books
+- explore the world
+- but also :dog:🌈🌞🏖️🌊:mount_fuji::snowman::it::wine_glass::beer:💻🎹:notes::nail_care:💃🥾🚲🎳🌆 
 
 :three: I speak fluently 
-- :ru: 
-- :uk: 
-- :de: 
+- :ru:/:uk:/:de: 
 
 :four: last but not least
 - the second part of my nickname came with me from Russia, the other part was added in Germany. So the nickname is already 21 years old😅🙈
