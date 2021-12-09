@@ -11,7 +11,7 @@ Nice to see you on my profile :smiley_cat:
 ## ⚡ Fun facts about me:
 
 :one: i (think, therefore i) am :point_up:
-- :female_sign::scorpius::dancer::princess::detective:👩‍💻
+- :female_sign::scorpius::dancer::princess::detective:👩‍💻:owl:
 
 :two: I like 
 - to meet new, interesting people
