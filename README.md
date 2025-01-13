@@ -13,7 +13,7 @@
 :three: I speak fluently 
 - :ru:/:uk:/:de: 
 
-:four: My motto is ## per aspera ad astra💫
+:four: My motto is <strong> per aspera ad astra💫 <strong>
 
 <!--
 **frau_juna/frau_juna** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
