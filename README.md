@@ -2,10 +2,6 @@
 
 Nice to see you on my profile :smiley_cat:
 
-- I’m currently learning coding 🌱 
-- I’m looking forward to become a cyber security & forensik specialist
-- don't hesitate to ask me if you have any questions (but remember - I don't have a :crystal_ball: :laughing:)
-
 ## ⚡ Fun facts about me:
 
 :one: i (think, therefore i) am :point_up:
