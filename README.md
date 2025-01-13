@@ -1,16 +1,13 @@
 # Hi there 👋
 
-Nice to see you on my profile :smiley_cat:
-
 ## ⚡ Fun facts about me:
 
-:one: i (think, therefore i) am :point_up:
-- :female_sign::scorpius::dancer::princess::detective:👩‍💻:owl:
+:one: I am female_sign: :scorpius: :dancer: :princess: :detective:👩‍💻 :owl:
 
 :two: I like 
 - to meet new, interesting people
-- read books
 - explore the world
+- read books
 - but also :dog:🌈🌞🏖️🌊:mount_fuji::snowman::it::wine_glass::beer:💻🎹:notes::nail_care:💃🥾🚲🎳🌆 
 
 :three: I speak fluently 
